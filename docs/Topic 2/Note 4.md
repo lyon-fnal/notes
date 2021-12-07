@@ -1,4 +1,4 @@
 # Note 4
 
-
-![[Pasted image 20211207171124.png]]
+**Do not use** the explanation point
+[[Pasted image 20211207171124.png]]
